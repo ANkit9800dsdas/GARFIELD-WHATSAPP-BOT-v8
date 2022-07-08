@@ -93,7 +93,7 @@ Be sure to use a (.)dot at the beginning of the command  </b>
   <h1><b>Developer Notice 💌</h1></b>
 <b> - Hi 🥰 I m
       <br>
-ＮＯＩＺ Ξ
+A N K I T Ξ
       <br>
 I am 16 years old
       <br>
